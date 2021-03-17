@@ -1,1 +1,2 @@
-Heny Wahyuni Hasibuan - 6701194041
+Nama : Heny Wahyuni Hasibuan 
+Nim   : 6701194041
